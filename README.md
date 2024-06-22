@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @moussa-dj
+- 👀 I’m interested in Anime & Gaming!
+- 🌱 I’m currently learning Python + Web Dev
+- 💞️ I’m looking to collaborate on: idk, i'm not really good enough to be collaborating with anyone on anything ;-;
+- 📫 How to reach me moussa_dj on telegram
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I'm Algerian :) 
